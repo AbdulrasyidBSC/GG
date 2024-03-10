@@ -1,0 +1,2 @@
+# GG
+TRUSTWALLET
